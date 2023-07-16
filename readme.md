@@ -1,5 +1,6 @@
 # self-bot-searcher
-L death sniper
+cry about it, mad death sniper users
+
 haha 30 lines searcher go brrrrr
 
 video tutorial
